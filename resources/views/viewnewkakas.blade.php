@@ -1,0 +1,1 @@
+hellow kakas pertemuan 8 'stash
